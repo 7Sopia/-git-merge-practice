@@ -1,2 +1,2 @@
- sopia hobi  maybe dzili
+ sopia hobi  maybe dzili!
  
